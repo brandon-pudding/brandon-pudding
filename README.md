@@ -25,7 +25,7 @@ $\color{924F3D}\normalsize{\texttt{ .ᐟ he/him only , true Brandon . ۫ ·}}$ <
 </div>
 
  <div align="center">
-            <img align="left" src="https://i.postimg.cc/kX7HQyzC/1000070360.png"width="300">
+            <img align="right" src="https://i.postimg.cc/kX7HQyzC/1000070360.png"width="300">
              <div align="center">
 <p align="right">
 $\color{924F3D}\normalsize{\texttt{️️️️⸝⸝ mostly offtab.ᐟ}}$ <br>
