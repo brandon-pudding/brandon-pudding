@@ -1,5 +1,4 @@
-<div align="center">
-<img align="right" src="https://i.postimg.cc/Kz0yLsfh/1000070363-(1).png"width="170">
+
 <div align="center">
 <img align="left" src="https://i.postimg.cc/BbrG6fYs/1000070352.png"width="500">
 <p align="left">
