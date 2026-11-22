@@ -9,7 +9,7 @@ $\color{924F3D}\normalsize{\texttt{ .ᐟ he/him only , true Brandon . ۫ ·}}$ <
       <td>
         <details>
           <summary><sub> ੭﹕﹒ᛝ oomf ౨ৎ (ily!)𓍼  </summary>
- <a href=><sub>゛frankֺּׅ𓏽⑅</a>
+ <a href="https://github.com/ChristZZ1"><sub>゛frankֺּׅ𓏽⑅</a>
 
       
 </div>
